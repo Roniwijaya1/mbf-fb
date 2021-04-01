@@ -1,4 +1,4 @@
-# update sabtu 31 maret 2021
+# update Rabu 31 maret 2021
 # Mau Ngapain Bro?:v
 # Recode? jangan di ganti author nya ajg, dan sertakan sumber!!!:v
 # fb me : https://m.facebook.com/Kang.Pacman
